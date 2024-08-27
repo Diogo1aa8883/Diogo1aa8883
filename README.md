@@ -8,8 +8,8 @@ Meu nome é Diogo Teles
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+0001126624913sp@gmail.com
 
-@marcelopaludetto
+@Diogo Teles
 
 ![descrição do GIF](link GIF do Tenor)
