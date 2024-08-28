@@ -12,4 +12,4 @@ Meu nome é Diogo Teles
 
 @Diogo Teles
 
-![descrição do GIF](link GIF do Tenor)
+https://tenor.com/pt-BR/view/yu-yu-hakusho-like-thumps-up-good-job-nice-job-gif-21308212
