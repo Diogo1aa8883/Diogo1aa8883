@@ -8,7 +8,7 @@ Meu nome é Diogo Teles
 
 ### Você pode entrar em contato comigo :mailbox
 
-0001126624913sp@gmail.com
+00001126624913sp@ol.educacao.sp.gov.br
 
 @Diogo Teles
 
